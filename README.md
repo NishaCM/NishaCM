@@ -1,4 +1,4 @@
-Heya! My name is Nisha 😊 I am from India and I currently live in Auckland, New Zealand.
+Heya! My name is Nisha 😊 I am from India and I have been living in Auckland New Zealand for over 10 years now.
 
 Aspiring Front End Developer
 
